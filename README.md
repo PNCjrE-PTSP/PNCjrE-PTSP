@@ -1,5 +1,5 @@
 - 👋 Hi sobat pengguna,saya PNCjrE-PTSP
-- 👀 saya ingin menanyakan ...
+- 👀 ada yang bisa saya bantu ...
 
 
 <!---
